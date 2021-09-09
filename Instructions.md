@@ -1,5 +1,7 @@
 # How to Make a Hot Ham and Cheese Sandwich
 
+<img src="https://github.com/zaf22/Hot-Ham-and-Cheese-Instructions/blob/main/man-frying-pan-cooking.jpg?raw=true" width="300" height="300">
+
 A hot ham and cheese is a grilled cheese sandwich with ham added to the middle. If you know how to make a grilled cheese, skip to step 9. Making the following is relatively quick, and the ingredients can be bought in grocery stores for an affordable price.
 
 ## Ingredients
