@@ -22,7 +22,8 @@ WARNING: If you have a dairy allergy or any intolerance to cheese, vegan cheese 
 
 1. Place skillet on the stove top. 
 2. Spray skillet with cooking spray.
-3. Turn on the stove top.
+3. Turn on the stove top. The higher the temperature, the faster the stove will heat up. Medium heat is recommended.
+> WARNING: Stove top is hot! Do NOT touch! 
 4. While waiting for the stove top to heat up, spread butter/margarine on two slices of bread with a knife. Only spread on one side of each slice.
 5. When the stove top is hot, place one of the slices of bread on the skillet butter-side down. 
 6. Occasionally move the bread around the skillet with a spatula so it doesn't stick.
